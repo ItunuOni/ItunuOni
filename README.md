@@ -27,7 +27,7 @@ I am Python & CyberSecurity Specialist, I Help Businesses Look More Appealing Wi
 
 
 ## Connect with Me:
-[LinkedIn](https://linkedin.com/in/ItunuOni)
+[LinkedIn](https://www.linkedin.com/in/itunu-oni-12630335a/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BcWO%2FF8FJSW23efJQ%2Btjx0A%3D%3D)
 
 
 <!--
