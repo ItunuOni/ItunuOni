@@ -1,6 +1,6 @@
 # Hello, I'm Itunu Oni!
 
-I am Python & CyberSecurity Specialist, I Help Businesses Look More Appealing With My Front End Designs & I am Also A Web Developer.
+I am Helping Businesses Stay Secure & Visually Appealing | Python & Cybersecurity Specialist | Designer & Website Developer.
 
 ## Skills I've Got:
 - Python Programming Language
